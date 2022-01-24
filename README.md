@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nuwanz
-- 👀 I’m interested in having new experiences by creating.
+- 👀 I’m interested in living a full life.
 - 🌱 I’m currently learning to build my startup.
-- 💞️ I’m looking to collaborate on anything i can understand.
+- 💞️ I’m looking to collaborate on anything I can understand.
 - 📫 How to reach me - vidzhut@gmail.com
 
 <!---
